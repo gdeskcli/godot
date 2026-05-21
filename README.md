@@ -3,6 +3,9 @@
 
 免费工具区域，使用者请点击star星星一个谢谢
 
+加入qq群获取最新实用工具
+<img width="1284" height="2283" alt="qrcode_1779324115737" src="https://github.com/user-attachments/assets/dd70b54b-afcb-477b-87d5-d92fba903349" />
+
 
 <img width="1386" height="893" alt="da231df645ee2c24a987ee2c9ab43811" src="https://github.com/user-attachments/assets/0122b933-9bc6-4ce8-b70a-4ec96b884d87" />
 
